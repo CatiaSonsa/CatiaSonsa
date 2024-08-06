@@ -4,4 +4,4 @@
 
 
 
- **Eu nã vou fazer nada desse curriculo**
+ **Eu não vou fazer nada desse curriculo**
